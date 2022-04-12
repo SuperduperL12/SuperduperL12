@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SuperduperL12
+- 👀 I’m interested in ... Coding
+- 🌱 I’m currently learning ... python and html
+- 💞️ I’m looking to collaborate on ... easy things
+- 📫 How to reach me ... my email is lukas.j.haun@gmail.com
+- Also I'm not going to be too active because of school because I'm 12
+- with ADHD, Autism, and anxiety.
